@@ -6,11 +6,10 @@
 
 ## Underage kids
 AN MAN/SITCK#0026 | 918167069726502955  
-CP_Thinh#9776 | 863237629637034024
+CP_Thinh#9776 | 863237629637034024  
 CP_Thinh#2971 | 918770677958451200
 
 ## Retarded "unikey police" kids
-
 Doge#9931 | 463678530870312961  
 bao412#3493 | 934456491568672768  
 VietCong the bush#5705 | 912548644484436009  
@@ -37,3 +36,6 @@ DOGE Ngáo Chó#9465 | 914440958756663306
 ## "Yêu nước online" nhưng sủa thì giống như một đứa lớp 4 đú cỘnG sẢn
 🔸Every kids in #2 section  
 MouniseurTuna Fake#7161 | 924522668013793280
+
+## Doxxed kids
+##### Soon updating...
