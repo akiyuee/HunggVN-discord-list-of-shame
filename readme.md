@@ -5,7 +5,9 @@
 > I recommend you using [http://discord.id/](http://discord.id/) to lookup!  
 
 ## Underage kids
-AN MAN/SITCK#0026 | 918167069726502955
+AN MAN/SITCK#0026 | 918167069726502955  
+CP_Thinh#9776 | 863237629637034024
+CP_Thinh#2971 | 918770677958451200
 
 ## Retarded "unikey police" kids
 
@@ -29,7 +31,8 @@ NPVN#5359 | 857966817368211496
 ## Retarded kids in #cafe-đêm-v2 channel
 ( ͡°( ͡° ͜ʖ( ͡° ͜ʖ ͡°)ʖ ͡°) ͡°)#5297 | 902867217035718656  
 amongus#1175 | 924834572502450248  
-Vietnamese_pls#8886 | 848935706638548992
+Vietnamese_pls#8886 | 848935706638548992  
+DOGE Ngáo Chó#9465 | 914440958756663306
 
 ## "Yêu nước online" nhưng sủa thì giống như một đứa lớp 4 đú cỘnG sẢn
 🔸Every kids in #2 section  
