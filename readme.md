@@ -35,7 +35,7 @@ DOGE Ngáo Chó#9465 | 914440958756663306
 
 ## "Yêu nước online" nhưng sủa thì giống như một đứa lớp 4 đú cỘnG sẢn
 🔸Every kids in #2 section  
-MouniseurTuna Fake#7161 | 924522668013793280 
+MouniseurTuna Fake#7161 | 924522668013793280  
 BAD#0002 | 873873496814538803 - "Đuối lý rồi thì lấy lag ra để bợ đít nhỉ"
 
 ## Doxxed kids
