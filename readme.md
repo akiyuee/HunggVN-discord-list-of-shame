@@ -27,6 +27,13 @@ Fall In Love#6645 | 872094480273141791
 ÁcQuỷĐồngNai#7429 | 760029719520346132  
 NPVN#5359 | 857966817368211496
 
+## Server aternos nhưng nổ còn to hơn quảng hạt nhân   
+sú#0879 | 936803129356333076 - "Không mở = aternos sao mở được" 🤡  
+![image](https://user-images.githubusercontent.com/67498765/151654668-8ced8f00-843f-48a1-b094-ebcbb498290f.png)  
+Slayzy22#8176 | 903573985839677501  
+Cand4WasBroken#2228 | 893341639488200784  
+![image](https://user-images.githubusercontent.com/67498765/151654768-b93171aa-eb4a-42e2-a62b-421eefa2a4ad.png)  
+
 ## "Chí phèo online, đéo đọc luật xong ăn vạ"
 sú#0879 | 936803129356333076
 
