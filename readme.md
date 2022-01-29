@@ -8,8 +8,7 @@
 ## "Tao làm gỗ cắt, tao bố đời, muốn sủa gì cũng được"  
 Quacc#9999 | 805780989623533569 - "Chào cả lò nhà chúng mày", ok, chào em chó thông minh nhé 👋
 
-
-## Retarded "unikey police" kids
+## "Người việt nam mà lại không đi viết có dấu nhục lắm 🤡"
 Doge#9931 | 463678530870312961  
 bao412#3493 | 934456491568672768  
 VietCong the bush#5705 | 912548644484436009  
