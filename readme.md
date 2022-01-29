@@ -5,10 +5,6 @@
 > I recommend you using [http://discord.id/](http://discord.id/) to lookup!  
 > Format: Discord Tag | Discord ID
 
-## Underage kids
-AN MAN/SITCK#0026 | 918167069726502955  
-CP_Thinh#9776 | 863237629637034024  
-CP_Thinh#2971 | 918770677958451200
 
 ## Retarded "unikey police" kids
 Doge#9931 | 463678530870312961  
@@ -38,9 +34,14 @@ Vietnamese_pls#8886 | 848935706638548992
 DOGE Ngáo Chó#9465 | 914440958756663306
 
 ## "Yêu nước online" nhưng sủa thì giống như một đứa lớp 4 đú cỘnG sẢn
-🔸Every kids in #2 section  
+🔸Every kids in "Unikey police" section  
 MouniseurTuna Fake#7161 | 924522668013793280  
 BAD#0002 | 873873496814538803 - "Đuối lý rồi thì lấy lag ra để bợ đít nhỉ"
+
+## Underage kids
+AN MAN/SITCK#0026 | 918167069726502955  
+CP_Thinh#9776 | 863237629637034024  
+CP_Thinh#2971 | 918770677958451200
 
 ## Doxxed kids
 ##### Soon updating...
