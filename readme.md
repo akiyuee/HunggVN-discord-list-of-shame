@@ -3,7 +3,8 @@
 > A comprehensive and constantly-updating list of retarded HunggVN discord kids.  
 > Because Discord kids are always retarded™.
 > I recommend you using [http://discord.id/](http://discord.id/) to lookup!  
-> Format: Discord Tag | Discord ID
+> 
+> Read format: Discord Tag | Discord ID
 
 ## "Tao làm gỗ cắt, tao bố đời, muốn sủa gì cũng được"  
 Quacc#9999 | 805780989623533569 - "Chào cả lò nhà chúng mày", ok, chào em chó thông minh nhé 👋  
