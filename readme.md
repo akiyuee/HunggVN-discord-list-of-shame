@@ -3,6 +3,7 @@
 > A comprehensive and constantly-updating list of retarded HunggVN discord kids.  
 > Because Discord kids are always retarded™.
 > I recommend you using [http://discord.id/](http://discord.id/) to lookup!  
+> Format: Discord Tag | Discord ID
 
 ## Underage kids
 AN MAN/SITCK#0026 | 918167069726502955  
@@ -26,6 +27,9 @@ Huy 404 Go Brrrrrrrr#9780 | 874872483130519562
 Fall In Love#6645 | 872094480273141791  
 ÁcQuỷĐồngNai#7429 | 760029719520346132  
 NPVN#5359 | 857966817368211496
+
+## "Chí phèo online, đéo đọc luật xong ăn vạ"
+sú#0879 | 936803129356333076
 
 ## Retarded kids in #cafe-đêm-v2 channel
 ( ͡°( ͡° ͜ʖ( ͡° ͜ʖ ͡°)ʖ ͡°) ͡°)#5297 | 902867217035718656  
