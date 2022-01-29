@@ -5,6 +5,9 @@
 > I recommend you using [http://discord.id/](http://discord.id/) to lookup!  
 > Format: Discord Tag | Discord ID
 
+## "Tao làm gỗ cắt, tao bố đời, muốn sủa gì cũng được"  
+Quacc#9999 | 805780989623533569 - "Chào cả lò nhà chúng mày", ok, chào em chó thông minh nhé 👋
+
 
 ## Retarded "unikey police" kids
 Doge#9931 | 463678530870312961  
