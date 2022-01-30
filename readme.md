@@ -1,4 +1,4 @@
-# HunggVN-retarded-kids-list
+# HunggVN-Discord-List-of-shame  
 
 > A comprehensive and constantly-updating list of retarded HunggVN discord kids.  
 > Because Discord kids are always retarded™.
