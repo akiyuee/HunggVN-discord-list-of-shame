@@ -7,9 +7,14 @@
 > Read format: Discord Tag | Discord ID
 
 ## "Tao làm gỗ cắt, tao bố đời, muốn sủa gì cũng được"  
-Quacc#9999 | 805780989623533569 - "Chào cả lò nhà chúng mày", ok, chào em chó thông minh nhé 👋  
+Quacc#9999 | 805780989623533569 
+- "Chào cả lò nhà chúng mày", ok, chào em chó thông minh nhé 👋  
 
 ## Unikey police
+Người Trung Cổ#8995 | 591801491875168258
+"Gõ không dấu như mấy thằng 2k8"
+
+RanboiEddie#2928 | 682527190012788746
 Doge#9931 | 463678530870312961  
 bao412#3493 | 934456491568672768  
 VietCong the bush#5705 | 912548644484436009  
