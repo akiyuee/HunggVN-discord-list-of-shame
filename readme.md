@@ -8,7 +8,7 @@
 
 ## King of clowns  
 ItzKhoa Gaming#5500 | 700563393832026174  - aka Larper, jewtuber who can't even say a "sorry" but instead call his circus out to help him  
-![image](https://user-images.githubusercontent.com/67498765/152800080-267a21d1-01f2-4ce5-a0ad-9b0f5d8aaa8d.png)
+> Refer to [this readme for more info](https://github.com/EndermanHackerVN/ItzKhoaGaming-public-shaming)
 
 
 ## "hẢo HáN" cái địt mẹ mày (aka metard users)   
