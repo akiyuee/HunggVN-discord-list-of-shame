@@ -6,6 +6,9 @@
 > 
 > Read format: Discord Tag | Discord ID
 
+## "hẢo HáN" cái địt mẹ mày (aka metard users)   
+TUANGOLDEN#0293 | 554659388598517771  
+
 ## "Tao làm gỗ cắt, tao bố đời, muốn sủa gì cũng được"  
 Quacc#9999 | 805780989623533569 
 - "Chào cả lò nhà chúng mày", ok, chào em chó thông minh nhé 👋  
